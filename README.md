@@ -1,4 +1,4 @@
-### dm1tr0_krot
+### - **Discord**: [dm1tr0_krot](https://discord.com/users/dm1tr0_krot)
 
 <!--
 **dkrot4858/dkrot4858** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
